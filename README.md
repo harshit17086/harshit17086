@@ -1,2 +1,2 @@
-# Hi there, I'm Harshit! 👋
+# Hi there, I'm Harshit! 
 
